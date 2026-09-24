@@ -1,0 +1,5 @@
+# ---2026
+קובץ של כל יומני השיקוף שלי לאורך השנה
+https://drive.google.com/drive/folders/1CZqh0tfKeQ4E-pAmM6zlRLemFtpxQtrC?usp=sharing
+
+זה קישור לדרייב שבו יש את כל יומני בשיקוף שיהיו לי
